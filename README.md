@@ -8,7 +8,7 @@ Meu nome é Micael
 
 ### Você pode entrar em contato comigo 📫
 - micaeltdelmondes02@gmail.com
-- YouTube: [Micael221xPlays](youtube.com/@micael221xplays)
-- YouTube: [Micael221xPlays - Canal 2](youtube.com/@Micael221xPlays-Canal2)
+- YouTube: [Micael221xPlays](https://youtube.com/@micael221xplays)
+- YouTube: [Micael221xPlays - Canal 2](https://youtube.com/@Micael221xPlays-Canal2)
 
 ![](https://media1.tenor.com/m/ZMe398J4PoEAAAAC/ok-okay.gif)
