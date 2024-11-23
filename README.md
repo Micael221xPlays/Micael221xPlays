@@ -7,7 +7,7 @@ Meu nome é Micael
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
 ### Você pode entrar em contato comigo 📫
-- micaeltdelmondes@gmail.com
+- micaeltdelmondes02@gmail.com
 - YouTube: [Micael221xPlays](youtube.com/@micael221xplays)
 - YouTube: [Micael221xPlays - Canal 2](youtube.com/@Micael221xPlays-Canal2)
 
